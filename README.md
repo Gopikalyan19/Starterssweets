@@ -37,7 +37,7 @@ Enjoy the convenience of our free delivery service. Whether you're at home, at t
 At Starters & Sweets, every meal is an opportunity to create a flavorful and unique moment. Whether you’re celebrating a special occasion or simply treating yourself, our dishes are designed to make every bite memorable.
 
 **Timings:**
-We are open from [insert timings]. Whether it’s breakfast, lunch, dinner, or a midnight snack, we are here to serve you the best starters and sweets around the clock.
+We are open from [6:00 PM to 10:00 PM]. Whether it’s breakfast, lunch, dinner, or a midnight snack, we are here to serve you the best starters and sweets around the clock.1
 
 **Our Team:**
 Our team is a diverse group of passionate individuals dedicated to providing you with the best dining experience. From our skilled chefs to our friendly delivery staff, everyone plays a crucial role in making Starters & Sweets the preferred choice for delicious food.
